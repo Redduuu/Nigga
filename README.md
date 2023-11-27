@@ -1,0 +1,3 @@
+# Nigga
+nigga
+Ajutor
